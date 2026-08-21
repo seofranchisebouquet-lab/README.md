@@ -20,7 +20,7 @@ Research is essential before investing in any food franchise.
 
 ## Final Consideration
 
-A <a href=" (https://www.franchisebouquet.com/)"> Food Franchise </a>
+A <a href="https://www.franchisebouquet.com"> Food Franchise </a>
  should be evaluated on its actual unit economics, market demand, location suitability, operating requirements, and contractual obligations.
 
 Information found online should be treated as a starting point. Important financial and legal information should be confirmed directly with the relevant franchisor and qualified professionals where appropriate.
